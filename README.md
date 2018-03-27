@@ -1,0 +1,1 @@
+# ico_smart_contract_QTA
